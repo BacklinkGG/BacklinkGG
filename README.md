@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning How To Index Google
 - 💞️ I’m looking for girl partner
 - 📫 How to reach me?
-  * Tele: @ribelcyberteam
+  * Tele: @cforcandra
   * Email: ribelcyberteam@gmail.com
 
 <!---
